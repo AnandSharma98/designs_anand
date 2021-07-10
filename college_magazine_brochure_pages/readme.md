@@ -1,2 +1,2 @@
 
-these are the some example of pages I made for brochure & magazine.
+these are the some example of pages I made for brochure & magazine for college department.
